@@ -1,5 +1,5 @@
 # How Kohli Conquered the Britishers Despite Losing 4-1
-##Redemption or Revenge
+## Redemption or Revenge
 Kohli's 2018 was not against England only it was also against kohli himself from 2014.
 For Kohli 2018 had many strings which were connected to 2014 India tour of England .
 It all started in 2014 when young Kohli toured first time for England to play Test matches,
